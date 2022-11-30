@@ -1,2 +1,2 @@
-# Ime-na-zada4a
+# Purvi-pruekt
 Samo za negri
