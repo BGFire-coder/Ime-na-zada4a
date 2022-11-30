@@ -1,2 +1,2 @@
-# Purvi-pruekt
+# Purvi proekt
 Samo za negri
