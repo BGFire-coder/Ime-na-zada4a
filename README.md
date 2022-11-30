@@ -1,2 +1,2 @@
 # Purvi proekt
-Samo za negri
+Samo za u4enici
